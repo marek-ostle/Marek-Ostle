@@ -14,6 +14,7 @@ Education: Year 10 and Certificate 3 in Metal Fabrication.
 Idael Job: My ideal job is to be still working mine's doing something with my IT degree, but when I get further into my degree I will approach HR department what is the best way to go to land a promotion with the compant I am working for.
 
 Online Test Results: From the results of the test I have learned that I should learn to spaek up a bit more when I am in a group meeting. I amy be confident when working in small groups but in larger groups I tend to sit back and let other people make the decisions.
+
 .
 
 
