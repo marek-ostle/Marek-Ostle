@@ -8,7 +8,6 @@ Background: Currently working as a Boilermaker Welder for Mount Gibson Iron on K
 Studying for a degree for IT at RMIT
 
 I was born and raised in Perth western Australia and at 45 still living here.
-
 .
 
 
